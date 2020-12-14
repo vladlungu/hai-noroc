@@ -1,7 +1,3 @@
 # hai-noroc
-teste asdasdsda
+Fii te rog mai civilizat Vlade :).
 
-afsfsafa 
-
-
-fsafsafa 
